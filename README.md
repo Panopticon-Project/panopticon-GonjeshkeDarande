@@ -17,3 +17,7 @@ https://twitter.com/_CPResearch_/status/1541753913732366338
 https://apnews.com/article/technology-middle-east-iran-dubai-b0404963ae23e5008439a0b607952de1
 
 https://twitter.com/GonjeshkeDarand/status/1541288345183158272
+
+https://securityaffairs.co/wordpress/121190/hacking/eindra-group-attacks-iran.html
+
+https://www.securityweek.com/cyber-disruption-stops-websites-iranian-ministry
